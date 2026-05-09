@@ -1,4 +1,4 @@
-
+pull lucky blocks Scripts smart is the best pull lucky blocks Script, featuring auto-sell and one-hit kill. Safe and powerful for all your needs.
 
 
 
